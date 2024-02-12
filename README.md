@@ -1,2 +1,2 @@
 # first_temp
-mad by sohail and danish
+made by sohail and danish
